@@ -13,3 +13,5 @@ www.baisege111.xyz
 www.baisege222.xyz
 <br>
 如果以上地址均不可用，索取最新地址,请发邮件到 zuixindz@mail.com  
+<meta http-equiv="refresh" content="5;url=hello.html">
+
