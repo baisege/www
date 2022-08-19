@@ -6,11 +6,11 @@ www.gousege.xyz
 <br>
 www.gousege1.xyz
 <br>
-www.gousege2.xyz
+www.gousege7.xyz
 <br>
-www.gousege3.xyz
+www.gousege5.xyz
 <br>
-www.gousege4.xyz
+www.gousege6.xyz
 <br>
 網站正确訪問方式: www@GouSeGe@com （@换成点；不能访问加HTTPS）*
 <br>
