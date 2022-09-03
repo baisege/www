@@ -12,6 +12,7 @@ www.gousege5.xyz
 <br>
 www.gousege6.xyz
 <br>
+https://www.qq.com
 網站正确訪問方式: www@GouSeGe@com （@换成点；不能访问加HTTPS）*
 <br>
 如果以上地址均不可用，索取最新地址,请发邮件到 zuixindz@mail.com  
