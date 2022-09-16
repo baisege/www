@@ -4,13 +4,13 @@
 <br>
 www.gousege.cfd
 <br>
-www.gousege8.click
+www.gousege.click
 <br>
-www.gousege9.fun
+www.gousege.fun
 <br>
-www.gousege5.sbs
+www.gousege.sbs
 <br>
-www.gousege6.cyou
+www.gousege.cyou
 <br>
 網站正确訪問方式: www@GouSeGe@com （@换成点；不能访问加HTTPS）*
 <br>
