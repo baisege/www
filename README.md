@@ -2,15 +2,15 @@
 最新地址
 请收藏此页面（重要） 建议Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 <br>
-www.gousege.xyz
+www.gousege.cfd
 <br>
-www.gousege8.xyz
+www.gousege8.click
 <br>
-www.gousege9.xyz
+www.gousege9.fun
 <br>
-www.gousege5.xyz
+www.gousege5.sbs
 <br>
-www.gousege6.xyz
+www.gousege6.cyou
 <br>
 網站正确訪問方式: www@GouSeGe@com （@换成点；不能访问加HTTPS）*
 <br>
