@@ -2,15 +2,15 @@
 最新地址
 请收藏此页面（重要） 建议Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 <br>
-www.JIsege.xyz
+www.JIsege.sbs
 <br>
-www.JIsege7.xyz
+www.JIsege.fun
 <br>
-www.JIsege6.xyz
+www.JIsege.cfd
 <br>
-www.JIsege3.xyz
+www.JIsege.hair
 <br>
-www.JIsege5.xyz
+www.JIsege.lol
 <br>
 網站正确訪問方式: www@JiSeGe@com （@换成点；不能访问加HTTPS）*
 <br>
