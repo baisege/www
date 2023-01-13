@@ -2,15 +2,15 @@
 最新地址
 请收藏此页面（重要） 建议Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 <br>
-www.yaosege.xyz
+www.yaosege5.xyz
 <br>
-www.yaosege1.xyz
+www.yaosege6.xyz
 <br>
-www.yaosege2.xyz
+www.yaosege7.xyz
 <br>
-www.yaosege3.xyz
+www.yaosege8.xyz
 <br>
-www.yaosege4.xyz
+www.yaosege9.xyz
 <br>
 網站正确訪問方式: www@YaoSeGe@com （@换成点；不能访问加HTTPS）*
 <br>
