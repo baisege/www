@@ -10,7 +10,7 @@ www.yaosege.lol
 <br>
 www.yaosege.mom
 <br>
-www.yaosege.cft
+www.yaosege.cfd
 <br>
 網站正确訪問方式: www@YaoSeGe@com （@换成点；不能访问加HTTPS）*
 <br>
