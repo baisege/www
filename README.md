@@ -2,15 +2,15 @@
 最新地址
 请收藏此页面（重要） 建议Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 <br>
-www.kansege5.xyz
+www.kansege.cam
 <br>
-www.kansege6.xyz
+www.kansege.sbs
 <br>
-www.kansege7.xyz
+www.kansege.fun
 <br>
-www.kansege8.xyz
+www.kansege.lol
 <br>
-www.kansege9.xyz
+www.kansege.mom
 <br>
 網站正确訪問方式: www@KanSeGe@com （@换成点；不能访问加HTTPS）*
 <br>
