@@ -4,9 +4,9 @@
 <br>
 www.2023ge.cfd
 <br>
-www.2023ge.mom
+www.2023ge.cam
 <br>
-www.2023ge.shop
+www.2023ge.fun
 <br>
 www.2023ge.top
 <br>
