@@ -2,7 +2,7 @@
 最新地址
 请收藏此页面（重要） 建议Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 <br>
-www.2023ge.cfd
+www.2023ge.lol
 <br>
 www.2023ge.cam
 <br>
